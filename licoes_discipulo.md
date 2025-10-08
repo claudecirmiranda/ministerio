@@ -17,6 +17,11 @@
 
 * * *
 
+### 🩵 **Resumo sucinto — A Nova Aliança**
+
+A Nova Aliança é o pacto estabelecido por Deus através do sangue de Jesus Cristo, que substitui a antiga aliança baseada na Lei. Nela, o perdão e a salvação são concedidos pela graça e pela fé, não por méritos humanos. Jesus, o Sumo Sacerdote eterno, sela essa aliança com seu sacrifício perfeito, garantindo reconciliação, vida nova e comunhão direta com Deus.
+
+* * *
 ### 📖 Mateus 3:13-15
 
 > “Então Jesus veio da Galileia ao Jordão para ser batizado por João. João, porém, tentou impedi-lo, dizendo: ‘Eu preciso ser batizado por ti, e tu vens a mim?’ Respondeu Jesus: ‘Deixe assim por enquanto; convém que assim façamos, para cumprir toda a justiça’. E João concordou.”
@@ -52,14 +57,6 @@
 ### 📖 Efésios 2:8-9
 
 > “Pois vocês são salvos pela graça, por meio da fé, e isso não vem de vocês, é dom de Deus; não por obras, para que ninguém se glorie.”
-
-* * *
-
-### 🩵 **Resumo sucinto — A Nova Aliança**
-
-A Nova Aliança é o pacto estabelecido por Deus através do sangue de Jesus Cristo, que substitui a antiga aliança baseada na Lei. Nela, o perdão e a salvação são concedidos pela graça e pela fé, não por méritos humanos. Jesus, o Sumo Sacerdote eterno, sela essa aliança com seu sacrifício perfeito, garantindo reconciliação, vida nova e comunhão direta com Deus.
-
-* * *
 
 💧 **O BATISMO NAS ÁGUAS**
 --------------------------
