@@ -7,7 +7,35 @@ Reescrevendo sua História com a Fé de Jabes
 Boa noite, meus amigos.  
 Quantas vezes a gente acaba se sentindo preso a um rótulo que nem escolheu? Um erro do passado, uma palavra que doeu, uma lembrança difícil… e, de repente, parece que isso passa a nos definir. Como se o mundo dissesse: “é isso que você é, e pronto”.
 Mas deixa eu te lembrar de uma coisa: **a sua identidade em Deus é muito maior do que qualquer marca que a vida tenha tentado deixar em você**.
-Lá na Bíblia, tem um trechinho curioso — bem no meio de uma lista enorme de nomes, quase como se fosse um intervalo — e, de repente, aparecem **dois versículos sobre um homem chamado Jabes**.  
+Lá na Bíblia, tem um trechinho curioso — bem no meio de uma lista enorme de nomes, quase como se fosse um intervalo — e, de repente, aparecem **dois versículos sobre um homem chamado Jabes**. 
+
+Eu fiquei tão intrigado com isso que resolvi fazer um pequeno estudo, olha que interessante:
+
+### 🔢 **Total aproximado de nomes citados de 1:1 até 4:8:**
+
+➡️ **Cerca de 330 nomes individuais.**  
+(alguns nomes se repetem em mais de uma genealogia, mas cada citação é considerada um registro separado na narrativa).
+
+* * *
+
+🧬 **Estrutura das Gerações**
+-----------------------------
+
+Esses capítulos cobrem:
+1.  **De Adão até Abraão** → 20 gerações principais
+    
+2.  **De Abraão até Davi** → +14 gerações
+    
+3.  **De Davi até o período pós-exílico** → +14 gerações
+    
+4.  **Famílias de Judá (até Jabes)** → várias subdivisões tribais
+    
+Ou seja, **cerca de 45–50 gerações** distintas são mencionadas no total, até o ponto onde Jabes aparece.
+
+Mas Deus tinha que chamar a nossa atenção, olha como isso é incrível!
+
+Mas continuando...
+
 Em 1 Crônicas 4:9, a gente lê:
 
 > “Jabes foi mais ilustre do que seus irmãos; e sua mãe lhe pôs o nome de Jabes, dizendo: Porquanto com dores o dei à luz.”
