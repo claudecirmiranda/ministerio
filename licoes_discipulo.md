@@ -282,6 +282,245 @@ Dízimos e ofertas são expressões de fé, gratidão e honra a Deus. O dízimo 
 
 # LIÇÃO 5
 
+## 📖 Mateus 28:18 (ARA)
+
+**18** E, aproximando-se Jesus, falou-lhes, dizendo:  
+**Toda a autoridade me foi dada no céu e na terra.**
+
+---
+
+### 🕊️ Contexto
+Este versículo antecede a **Grande Comissão** (Mateus 28:19–20).  
+Aqui, Jesus declara o fundamento da missão: **Ele possui toda a autoridade**, tanto celestial quanto terrena.  
+É com base nessa autoridade que envia os discípulos a todas as nações.
+
+### 🌍 Mensagem Central
+- Jesus é o **Senhor soberano** sobre tudo.  
+- A missão da Igreja parte de **sua autoridade divina**.  
+- Nenhuma força ou domínio está fora do **poder de Cristo**.
+
+## 📖 2 Timóteo 4:2 (ARA)
+
+**2** Prega a palavra, insta, quer seja oportuno, quer não,  
+corrige, repreende, exorta com toda longanimidade e doutrina.
+
+---
+
+### 🕊️ Contexto
+O apóstolo **Paulo**, já próximo do fim de sua vida, escreve a **Timóteo**, seu discípulo e cooperador no Evangelho.  
+Neste trecho, ele o exorta a permanecer firme na pregação da verdade, mesmo diante de tempos difíceis e da resistência das pessoas à sã doutrina.
+
+### 🌍 Mensagem Central
+- **Pregar a Palavra** em todo tempo, com coragem e fidelidade.  
+- **Corrigir e instruir** com amor e paciência.  
+- **Perseverar** na verdade, mesmo quando não for conveniente.  
+- O ministério deve ser guiado por **doutrina e compaixão**.
+
+## 📖 Colossenses 4:5 (ARA)
+
+**5** Portai-vos com sabedoria para com os que são de fora;  
+aproveitai as oportunidades.
+
+---
+
+### 🕊️ Contexto
+O apóstolo **Paulo** encerra sua carta aos colossenses com conselhos práticos sobre o testemunho cristão.  
+Ele orienta os crentes a viverem com **sabedoria diante dos não cristãos**, agindo com discernimento e aproveitando cada momento para refletir Cristo em suas atitudes e palavras.
+
+### 🌍 Mensagem Central
+- **Viver com sabedoria** diante dos que ainda não conhecem a fé.  
+- **Aproveitar cada oportunidade** para expressar o amor e a verdade do Evangelho.  
+- O **testemunho** é uma poderosa forma de pregação.  
+- A vida do cristão deve ser **intencional e exemplar** no meio do mundo.
+
+## 📖 Marcos 2:17 (ARA)
+
+**17** Tendo Jesus ouvido isto, respondeu-lhes:  
+**Os sãos não precisam de médico, e sim os doentes;**  
+**não vim chamar justos, e sim pecadores.**
+
+---
+
+### 🕊️ Contexto
+Jesus havia acabado de chamar **Levi (Mateus)**, um cobrador de impostos, para segui-lo.  
+Quando os fariseus o criticaram por comer com pecadores e publicanos, Ele respondeu com esta frase poderosa.  
+Cristo revela que sua missão é **curar os espiritualmente enfermos**, trazendo perdão e restauração àqueles que reconhecem sua necessidade de Deus.
+
+### 🌍 Mensagem Central
+- Jesus veio para **salvar os pecadores**, não para os que se julgam justos.  
+- O **Evangelho é remédio** para o coração ferido e arrependido.  
+- A **graça de Deus** alcança quem admite sua fraqueza.  
+- A missão de Cristo é de **cura, compaixão e restauração**.
+
+## 📖 Romanos 3:23 (ARA)
+
+**23** pois todos pecaram e carecem da glória de Deus.
+
+---
+
+### 🕊️ Contexto
+O apóstolo **Paulo**, na carta aos Romanos, explica que **toda a humanidade está sob o pecado**, sem distinção entre judeus e gentios.  
+Este versículo resume a condição universal do ser humano — a separação de Deus causada pelo pecado — preparando o caminho para a revelação da **justificação pela fé em Cristo**.
+
+### 🌍 Mensagem Central
+- **Todos pecaram**, sem exceção.  
+- O pecado nos **afasta da glória de Deus**.  
+- Nenhum esforço humano pode restaurar essa comunhão.  
+- **Somente em Jesus** encontramos perdão e reconciliação com Deus.
+
+## 📖 Atos 3:19 (ARA)
+
+**19** Arrependei-vos, pois, e convertei-vos para serem cancelados os vossos pecados,
+
+---
+
+### 🕊️ Contexto
+Após curar um homem coxo na porta do templo, **Pedro** prega à multidão em Jerusalém.  
+Ele explica que o milagre foi realizado pelo poder de **Jesus Cristo**, o Messias que o povo havia rejeitado.  
+Neste versículo, Pedro chama todos ao **arrependimento e conversão**, para que recebam o perdão e o tempo de refrigério da presença de Deus.
+
+### 🌍 Mensagem Central
+- O **arrependimento** é o primeiro passo para o perdão.  
+- **Converter-se** significa mudar de direção, voltar-se para Deus.  
+- Em Cristo, nossos **pecados são apagados**.  
+- O Evangelho traz **restauração e nova vida** a quem crê.
+
+## 📖 Apocalipse 3:20 (ARA)
+
+**20** Eis que estou à porta e bato;  
+se alguém ouvir a minha voz e abrir a porta,  
+entrarei em sua casa e cearei com ele, e ele, comigo.
+
+---
+
+### 🕊️ Contexto
+Estas palavras fazem parte da carta de Jesus à **igreja de Laodiceia**, uma comunidade morna espiritualmente — nem fria nem quente.  
+Cristo se apresenta como alguém que **deseja comunhão verdadeira** com os seus, convidando cada pessoa a abrir o coração para Ele.  
+O texto é uma **chamada pessoal à intimidade e arrependimento**, não apenas uma advertência coletiva.
+
+### 🌍 Mensagem Central
+- Jesus **bate à porta** do coração, esperando uma resposta.  
+- O convite é para **relacionamento e comunhão**, não religião.  
+- Cabe a cada um **ouvir e abrir** a porta para Cristo.  
+- Quem o recebe experimenta **intimidade e renovação espiritual**.
+
+## 📖 1 João 1:9 (ARA)
+
+**9** Se confessarmos os nossos pecados, ele é fiel e justo para nos perdoar os pecados  
+e nos purificar de toda injustiça.
+
+---
+
+### 🕊️ Contexto
+O apóstolo **João** escreve para fortalecer a comunhão dos cristãos com Deus, destacando a **importância da confissão e arrependimento**.  
+Ele enfatiza que Deus **não apenas perdoa**, mas também **purifica completamente** aqueles que se reconhecem pecadores e buscam sinceramente a restauração.
+
+### 🌍 Mensagem Central
+- **Confessar os pecados** é essencial para manter a comunhão com Deus.  
+- Deus é **fiel e justo** para perdoar.  
+- O perdão de Deus **purifica de toda injustiça**.  
+- A prática da confissão leva a **vida em integridade e santidade**.
+
+## 📖 Efésios 2:8–9 (ARA)
+
+**8** Porque pela graça sois salvos, mediante a fé;  
+e isto não vem de vós, é dom de Deus;  
+
+**9** não vem das obras, para que ninguém se glorie.
+
+---
+
+### 🕊️ Contexto
+O apóstolo **Paulo** escreve aos efésios explicando que a salvação é **totalmente um presente de Deus**, e não resultado de esforços humanos.  
+Ele destaca a **graça divina** como fundamento da fé, enfatizando que ninguém pode se vangloriar por merecê-la, pois é um dom gratuito.
+
+### 🌍 Mensagem Central
+- A salvação é pela **graça**, não por méritos pessoais.  
+- A **fé** é o meio pelo qual recebemos este dom.  
+- Nenhuma obra humana pode conquistar a salvação.  
+- A glória é **somente de Deus**, e não nossa.
+
+## 📖 João 14:6 (ARA)
+
+**6** Respondeu-lhe Jesus:  
+**Eu sou o caminho, a verdade e a vida; ninguém vem ao Pai senão por mim.**
+
+---
+
+### 🕊️ Contexto
+Jesus fala a seus discípulos pouco antes de sua prisão e crucificação, garantindo conforto e clareza sobre o acesso a Deus.  
+Ele se apresenta como **a única ponte para o Pai**, destacando que a salvação e a comunhão com Deus são encontradas **somente através dele**.
+
+### 🌍 Mensagem Central
+- Jesus é o **caminho** que conduz ao Pai.  
+- Ele é a **verdade**, revelando plenamente Deus.  
+- Ele é a **vida**, oferecendo vida eterna aos que creem.  
+- A comunhão com Deus depende **exclusivamente de Cristo**.
+
+## 📖 João 5:11–13 (ARA)
+
+**11** Respondeu-lhe o homem que fora curado:  
+**Aquele que me curou disse-me: Toma o teu leito e anda.**  
+
+**12** Perguntaram-lhe, então:  
+**Quem é o homem que te disse: Toma o teu leito e anda?**  
+
+**13** Mas o homem que fora curado não sabia quem era,  
+pois Jesus se havia retirado, porque havia muita gente naquele lugar.
+
+---
+
+### 🕊️ Contexto
+Este episódio ocorre no **Tanque de Betesda**, onde Jesus cura um homem que havia sido inválido por 38 anos.  
+Mesmo após a cura milagrosa, o homem **não sabia a identidade de Jesus**, mostrando que a obra de Deus muitas vezes precede o reconhecimento humano.  
+O texto destaca a **fé prática** — obedecer à palavra de Jesus antes de entender plenamente quem Ele é.
+
+### 🌍 Mensagem Central
+- A **obediência à palavra de Jesus** é essencial, mesmo sem compreender tudo.  
+- Deus muitas vezes age **antes do nosso entendimento**.  
+- Jesus opera milagres **com autoridade e compaixão**.  
+- O encontro com Cristo pode transformar a vida antes mesmo do **reconhecimento consciente** de sua identidade.
+
+## 📖 Mateus 18:20 (ARA)
+
+**20** Porque onde estiverem dois ou três reunidos em meu nome,  
+aí estou eu no meio deles.
+
+---
+
+### 🕊️ Contexto
+Jesus fala aos discípulos sobre **conselhos e disciplina na igreja**, destacando que a presença dele não depende de quantidade, mas de **reunião em seu nome**.  
+O versículo enfatiza que a comunhão e a oração em grupo têm poder, pois Cristo promete estar **presente espiritualmente**.
+
+### 🌍 Mensagem Central
+- A presença de Jesus não depende de multidões, mas de **fé e intenção**.  
+- **Reunião em Seu nome** traz comunhão e fortalecimento espiritual.  
+- A vida cristã é **coletiva e comunitária**, apoiada na presença de Cristo.  
+- Pequenos grupos de oração ou estudo têm **grande valor espiritual**.
+
+
+
 # LIÇÃO 6
+
+## 📖 Mateus 28:19–20 (ARA)
+
+**19** Ide, portanto, fazei discípulos de todas as nações,  
+batizando-os em nome do Pai, e do Filho, e do Espírito Santo;  
+
+**20** ensinando-os a guardar todas as coisas que vos tenho ordenado.  
+E eis que estou convosco todos os dias até à consumação do século.
+
+---
+
+### 🕊️ Contexto
+Esses versículos encerram o Evangelho de Mateus e são conhecidos como **“A Grande Comissão”**.  
+Após a ressurreição, Jesus aparece aos discípulos e lhes dá a missão de levar o Evangelho a todas as nações, ensinando e batizando — uma ordem que estende o Reino de Deus a todos os povos.
+
+### 🌍 Mensagem Central
+- Fazer **discípulos**, não apenas convertidos.  
+- **Batizar** em nome da Trindade.  
+- **Ensinar** a obedecer aos mandamentos de Cristo.  
+- **Confiar** na presença constante de Jesus.
+
 
 # LIÇÃO 7
