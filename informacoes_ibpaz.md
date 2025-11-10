@@ -13,7 +13,7 @@
 **Contato:**  
 📞 (31) 3384-3320  
 📧 secretariaibpazsede@gmail.com  
-🌐 [www.ibpaz.com.br](https://www.ibpaz.com.br)
+🌐 [www.igrejabatistadapaz.org](https://igrejabatistadapaz.org/)  
 
 ### 🪶 Missão
 **Integrar, Desenvolver, Enviar.**
@@ -134,7 +134,18 @@ Cada voluntário é treinado para refletir o amor de Deus às crianças com dedi
 
 ---
 
-## 7️⃣ Comunidade e Células
+## 7️⃣ Pastores e Liderança
+**Pastor Presidente:** Pr. [Willian Werneck]  
+**Pastor Sênior:** Pr. [Ualide]  
+**Equipe Pastoral:**  
+- Pr. [João] — Rede Branca  
+- Pr. [Zinho] — Rede Azul  
+
+*(Obs: preencher quando disponível para melhorar personalização das respostas.)*
+
+---
+
+## 8️⃣ Comunidade e Células
 
 As **células IBPaz** são grupos pequenos de comunhão, estudo e oração que se reúnem semanalmente em lares.  
 Cada célula é liderada por um membro treinado, promovendo crescimento espiritual e cuidado mútuo.
@@ -143,7 +154,7 @@ Cada célula é liderada por um membro treinado, promovendo crescimento espiritu
 
 ---
 
-## 8️⃣ Frases e Identidade Espiritual
+## 9️⃣ Frases e Identidade Espiritual
 
 > “Uma família para pertencer.”  
 > “Integrar. Desenvolver. Enviar.”  
@@ -152,16 +163,24 @@ Cada célula é liderada por um membro treinado, promovendo crescimento espiritu
 
 ---
 
-## 9️⃣ Contato e Redes
+## 🔟 Contato e Redes
 
 📍 **Endereço:**  
 R. Agnelo Macedo, 580 – Barreiro, Belo Horizonte – MG, 30640-120  
 
 📞 **Telefone:** (31) 3384-3320  
 📧 **E-mail:** secretariaibpazsede@gmail.com  
-🌐 **Site:** [ibpaz.com.br](https://www.ibpaz.com.br)  
-📸 **Instagram:** [@ibpazoficial](https://instagram.com/ibpazoficial)  
-📘 **Facebook:** [facebook.com/ibpaz](https://facebook.com/ibpaz)
+🌐 **Site:** [igrejabatistadapaz.org](https://igrejabatistadapaz.org/)  
+📸 **Instagram:** [@igrejabatistadapazsede](https://www.instagram.com/igrejabatistadapazsede/)  
+📘 **Facebook:** [facebook.com/igrejabatistadapazbarreiro](https://www.facebook.com/igrejabatistadapazbarreiro/)
+▶ **YouTube** [youtube.com/@IgrejaBatistadaPaz](https://www.youtube.com/channel/UCFg8GwC6UxJ1rEu1bgOiwBA)
+
+**Dízimos e ofertas**
+
+Santander Ag 3007
+C/C: 13000245-5
+CNPJ: 25463589/0001-95
+Igreja Batista da Paz
 
 ---
 
